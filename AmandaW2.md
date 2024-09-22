@@ -1,0 +1,1 @@
+Hi I am Amanda & Im just practicing on this Sunday :)
